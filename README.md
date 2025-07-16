@@ -1,3 +1,10 @@
+![WhatsApp Image 2025-07-16 at 7 46 00 PM](https://github.com/user-attachments/assets/bba407e8-a727-4851-99b3-8b87f057ff78)
+![WhatsApp Image 2025-07-16 at 7 46 00 PM (1)](https://github.com/user-attachments/assets/a293ba9f-2592-4199-a482-d65e4f9038ee)
+![WhatsApp Image 2025-07-16 at 7 46 00 PM (2)](https://github.com/user-attachments/assets/95a9ddb5-0b1a-4fcb-9fa5-075244ccf727)
+![WhatsApp Image 2025-07-16 at 7 46 00 PM (3)](https://github.com/user-attachments/assets/31eeb933-e6f0-47e7-ad21-b893f02beb3d)
+![WhatsApp Image 2025-07-16 at 7 46 00 PM (4)](https://github.com/user-attachments/assets/9d93ee73-8137-4941-b2d8-8413d4956f3d)
+
+
 Cómo usar esta app:
 
 1. Registrar cuenta
